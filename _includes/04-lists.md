@@ -1,4 +1,0 @@
-* Video games
-* Pizza
-* basketball
-  
